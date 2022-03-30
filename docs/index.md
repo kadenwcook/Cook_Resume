@@ -2,7 +2,7 @@
 layout: cv
 title: Kaden Cook's Resume
 ---
-# Kaden Cook 
+# Kaden Cook  
 
 
 <div id="https://github.com/kadenwcook/Cook_Resume.git">
