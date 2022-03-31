@@ -25,8 +25,7 @@ Bachelor of Science in Accounting
 
 
 ## Work Experience
-###
-#### _Cooper Norman_, Idaho falls, Idaho
+__Cooper Norman__, Idaho falls, Idaho
 
 
 __Accountant (Transactional Service Line)__
@@ -53,7 +52,7 @@ __Accounts Payable and Receivable Specialist__
 -	Created an organized process of receiving, matching, and paying for purchase orders that saved the company money by reducing the weekly time needed for this job from 20 hours a week to 15 hours a week
 
 ## Volunteer Experience
-#### _Church of Jesus Christ of Latter-day Saints_, Arequipa, Peru
+__Church of Jesus Christ of Latter-day Saints__, Arequipa, Peru
 
 __Full time Volunteer Representative (Spanish Speaking)__
 `January 2017 - January 2019`
