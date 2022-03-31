@@ -46,7 +46,7 @@ __Tax Intern__
 - 	Prepare individual and business returns during busy season, including working in Ultra tax and Fixed Asset software.
 -	Import and prepare large trial balances and other data manipulation to prepare for audits.
 
-__Marshall's Tile__, Idaho Falls, Idaho
+__Marshalls's Tile__, Idaho falls, Idaho
 
 
 __Accounts Payable and Receivable Specialist__
