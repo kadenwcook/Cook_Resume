@@ -58,7 +58,7 @@ __Full time Volunteer Representative (Spanish Speaking)__
 `January 2017 - January 2019`
 -	Taught and devised organized lesson plans in Spanish to help hundreds of people to improve their lives and learn about Jesus Christ
 
-##Skills
+## Skills
 -	Proficient in Excel, Word, and other Microsoft programs
 -	Certified in QuickBooks, Sage Intacct, and Fathom Reporting.
 -	Earned awards in state Business Professionals of America competition in high school
@@ -71,6 +71,6 @@ __Full time Volunteer Representative (Spanish Speaking)__
 
 <!-- ### Footer
 
-Last updated: May 2013 -->
+Last updated: March 2022 -->
 
 
