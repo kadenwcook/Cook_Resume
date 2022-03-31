@@ -25,8 +25,8 @@ Bachelor of Science in Accounting
 
 
 ## Work Experience
-
-#### _Cooper Norman_, Idaho falls Idaho
+###
+#### _Cooper Norman_, Idaho falls, Idaho
 
 
 __Accountant (Transactional Service Line)__
@@ -47,13 +47,13 @@ __Tax Intern__
 - 	Prepare individual and business returns during busy season, including working in Ultra tax and Fixed Asset software.
 -	Import and prepare large trial balances and other data manipulation to prepare for audits.
 
-####Marshall's Tile
+#### _Marshall's Tile_, Idaho Falls, Idaho
 __Accounts Payable and Receivable Specialist__
 `May 2020 - January 2021`
 -	Created an organized process of receiving, matching, and paying for purchase orders that saved the company money by reducing the weekly time needed for this job from 20 hours a week to 15 hours a week
 
 ## Volunteer Experience
-####Church of Jesus Christ of Latter-day Saints, Arequipa, Peru
+#### _Church of Jesus Christ of Latter-day Saints_, Arequipa, Peru
 
 __Full time Volunteer Representative (Spanish Speaking)__
 `January 2017 - January 2019`
