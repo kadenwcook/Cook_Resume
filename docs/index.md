@@ -47,6 +47,8 @@ __Tax Intern__
 -	Import and prepare large trial balances and other data manipulation to prepare for audits.
 
 __Marshall's Tile__, Idaho Falls, Idaho
+
+
 __Accounts Payable and Receivable Specialist__
 `May 2020 - January 2021`
 -	Created an organized process of receiving, matching, and paying for purchase orders that saved the company money by reducing the weekly time needed for this job from 20 hours a week to 15 hours a week
